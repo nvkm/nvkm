@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+https://learn.microsoft.com/en-us/users/naveenkumarchandrasekar-8788/credentials/95cd4585e734a4cd?ref=https%3A%2F%2Fwww.linkedin.com%2F
+
+
+https://www.credly.com/badges/acc542bf-7570-4478-b004-66e32ddc5d9a
